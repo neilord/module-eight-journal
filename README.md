@@ -1,0 +1,1 @@
+# module-eight-journal-guidelines
